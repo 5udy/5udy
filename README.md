@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @5udy
+- 💞️ I’m Currently Working for MGNetworks
+- 📫 How to reach me : 5udy on Discord
